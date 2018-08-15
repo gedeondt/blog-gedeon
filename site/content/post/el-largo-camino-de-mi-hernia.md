@@ -82,7 +82,7 @@ Poquito a poco he vuelto a mis queridas sentadillas (pero con 15 kilitos de mome
 
 
 
-## Como me encuentro un año después
+## ¿Cómo me encuentro un año después?
 
 Animado es la palabra que mejor define ahora mi estado. Que no es poco.
 
@@ -116,7 +116,7 @@ No os quedéis con un consejo de uno que os ha dicho.
 
 
 
-## ¿Como lo he vivido?
+## ¿Cómo lo he vivido?
 
 Regular. Soy sincero aquí. Me frustré  al principio y cuando me vi atascado me costó llevarlo a veces. Paciencia ha sido la única clave y ahora que me veo mejorar de verdad estoy contento la verdad.
 
