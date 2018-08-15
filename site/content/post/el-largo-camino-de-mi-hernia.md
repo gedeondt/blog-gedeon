@@ -1,5 +1,5 @@
 ---
-title: El largo camino de mi hernia
+title: 1 año con mi hernia
 date: 2018-08-14T11:44:13.802Z
 description: >-
   Hace once meses me vine arriba, me hernié (literalmente) y un año después
@@ -74,7 +74,7 @@ El caso es que empecé con los ejercicios que recomendaron desde el centro y los
 
 El caso es que con la ligera mejoría me vine arriba again, pero para bien esta vez.
 
-Me puse a buscar un entrenador personal **bueno** que **supiera de hernias**. Encontré una empresa a través de un contacto y me mandaron a una chica muy maja (Tere) con la que empecé después de una evaluación 3 días en semana.
+Me puse a buscar un entrenador personal **bueno** que **supiera de hernias**. Encontré una empresa a través de un contacto y me mandaron a una chica muy maja (Tere) con la que empecé después de una evaluación 3 días en semana. Es un dineral comparado con ir al gimnasio pero me lo he tomado como un tratamiento médico y en salud se gasta si hace falta.
 
 ¿Y qué hacemos? Pues fortalecer un poco todo y volver a poner mi cuerpo en marcha prestando muchísima atención a mis posturas. Hemos descubierto que mi cadera funciona un poco regular y trabajando en ello. Trabajando la movilidad de mi tobillo. En general acondicionando mi cuerpo para volver a entrenar y mejorar mi postura y mi porpiocepción (toma palabro).
 
@@ -91,3 +91,33 @@ No sé si conjuntamente la descompresión seguida del entrenamiento o el propio 
 Por primera vez en un año de repente a las seis de la tarde me doy cuenta de que ese día no me he acordado de mi hernia ni una vez. Y sonrio.
 
 No es lineal (hoy por ejemplo estoy algo dolorido) pero si progresa hacia adelante de manera muy evidente.
+
+
+
+## ¿Qué he aprendido?
+
+1. Que **volveré a hacer deporte** con cierta intensidad.
+2. Que probablemente **no será nunca de la misma manera** que antes de mi hernia aunque si espero poder retomar mi crossfit con algunas adaptaciones.
+3. Que las **hernias discales** son **fastidiadas**.
+4. **Que hay que sentarse bien y pasear**.
+5. Que el tratamiento de las hernias no está muy estandarizado y hay **mucha desinformación**.
+6. Que por desgracia **no hay un criterio médico homogeneo** y si muchas opiniones y gente con ideas un poco oxidadas o demasiado innovadoras.
+7. Que hay que tener paciencia y que se hace duro a veces.
+
+
+
+## ¿Qué recomiendo?
+
+No soy yo el que debe recomendar nada. Eso he aprendido. Os cuento mi historia por si alguien está pasando por algo similar y le puede servir de algo pero aquí no hay soluciones únicas y remedios mágicos.
+
+Informaros bien y cuando digo bien digo bien, bien bien. Escuchad a gente que sepa de esto: traumas, médicos, fisios, etc. Leed en internet de fuentes fiables (esto es un arte) y yo tengo por costumbre acudir a estudios (vía pubmed o fuentes similares).
+
+No os quedéis con un consejo de uno que os ha dicho.
+
+
+
+## ¿Como lo he vivido?
+
+Regular. Soy sincero aquí. Me frustré  al principio y cuando me vi atascado me costó llevarlo a veces. Paciencia ha sido la única clave y ahora que me veo mejorar de verdad estoy contento la verdad.
+
+Dentro de todo hay cosas mucho mas complicadas, lesiones peores y hernias mucho más agudas que la mía. Siempre hay que medir. En todo momento he hecho **una vida normal.** Lógicamente impacta desde haciendo la compra hasta decidiendo que viaje vas a hacer o como vas a pasar el finde, pero siempre dentro de una normalidad.
