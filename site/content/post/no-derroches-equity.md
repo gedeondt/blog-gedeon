@@ -1,0 +1,6 @@
+---
+title: No derroches equity
+date: 2018-08-24T10:53:21.803Z
+description: Cosas que no deberías estar jaciendo con tu equity...
+---
+Siguiendo con la serie de reflexiones para emprendedores. Equity. Qué cosa tan maravillosa que sirve para pagar cosas que no me puedo permitir... WRONG. El equity es MUY ESCASO y no es una moneda de cambio. Cosas que no debes hacer: darle un poco a tu primo por echarte una mano, darle a tu empresa de desarrollo porque no puedes pagar, repartir a partes iguales entre los socios porque si (por muy colegas de toda la vida)... todo el que tiene equity es socio... tiene algo que decir? que aportar? hoy, mañana... en 3 años... va a haber momentos en los que TENGAS que soltar equity: rondas de financiación, alianzas estratégicas, a socios de verdad que aparecerán a medida que avances... guárdalo con cariño. Cuando lo ofrezcas entiende su valor. Si me ofreces un 3% por hacerte esa plataforma que te he presupuestado en 60k estás valorando tu startup en 2M... mmmmm... mira que me gusta tu powerpoint peeero... por otro lado, y si luego no te gusta mi trabajo, no vemos el fututo de la compañía igual... he visto tantos 'socios tecnológicos' mochila que están ahí, hay que cargar con ellos pero nadie los quieres. Entiende el compromiso del equity a medio plazo. Si necesitas 50k ve al banco.
