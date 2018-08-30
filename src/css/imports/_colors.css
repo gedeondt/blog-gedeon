@@ -48,6 +48,10 @@
   background-color: var(--white);
 }
 
+.bg-green {
+  background-color: var(--green);
+}
+
 .bg-off-white {
   background-color: var(--off-white);
 }
